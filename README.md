@@ -21,7 +21,7 @@ my carrd → https://rip-myself-brokers-biggest-fan.carrd.co/
 feel free to sit next to and talk to me! but i frequently go offtab so if you whisper to me it would be better
 
 
-i mostly cosplay regretevator and phighting characters sometimes my own ocs
+i mostly cosplay regretevator and phighting characters sometimes my own ocs. i yawn, sneeze, use other actions, nom and use items by myself :3
 
 
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://github.com/user-attachments/assets/c017fc80-d506-495e-a097-3e75f37a64d6)
