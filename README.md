@@ -30,31 +30,34 @@ i mostly cosplay regretevator and phighting characters sometimes my own ocs. i y
 tags i use ・・・ 
 
 
-w2i → whisper to interact ・・・
+w2i → whisper to interact (not forcefull but preferred)  ・・・
 
 
-tc → touch comfort ・・・
+read byi → read before you interact, read this page before you interact with me
 
 
-c+h → cuddles and hide ・・・
+tc → touch comfort (if i have this, im begging you to sit next to and/or nuzzle me loll) ・・・
 
 
-int → interact ・・・
+c+h → cuddles and hide (sitting next to me, boops, nuzzles etc) ・・・
 
 
-comf → comfort/comfort character ・・・
+int → interact (talk to me, cuddle me, nuzzle me etc)・・・
 
 
-kin/kinnie → kin/kinning character ・・・
+comf → comfort/comfort character (dont hate on any character i have this on!!!, bc im watching you /j) ・・・
 
 
-afk → away from keyboard ・・・
+kin/kinnie/sys → kin/kinning/system character (character i feel connected to, that character is me in personality, i may act like the character i have this on)・・・
+
+
+afk → away from keyboard, so i cant see what happens, even whispers ・・・
 
 
 offtab → on another tab, so i cant see what happens ・・・
 
 
-editing → editing characters
+editing → editing characters, i can only see whispers
 
 
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://github.com/user-attachments/assets/c017fc80-d506-495e-a097-3e75f37a64d6)
