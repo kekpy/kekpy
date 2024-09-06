@@ -18,7 +18,7 @@ i have a carrd, its on my links, i have all my links and info there
 my carrd → https://rip-myself-brokers-biggest-fan.carrd.co/
 
 
-feel free to sit next to and talk to me! im okay with any/all ships ((except problamatic one obv!)) but i frequently go offtab so if you whisper to me it would be better
+feel free to sit next to and talk to me! im okay with any/all ships (except problematic ones obv!) but i frequently go offtab so if you whisper to me it would be better
 
 
 i mostly cosplay regretevator and phighting characters sometimes my own ocs. i yawn, sneeze, use other actions, nom and use items by myself
