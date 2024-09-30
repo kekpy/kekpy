@@ -41,9 +41,9 @@ boombox (including skins), valk, dom, traffic, zuka, ghosdeeri, vine staff, crue
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://github.com/user-attachments/assets/c017fc80-d506-495e-a097-3e75f37a64d6)
 
 
-kinnie/kin/sys characters. (i may act like them sometimes/ use these prns if i play as them, thank you <3)・・・
+kinnie/kin characters・・・
 
-boombox(he/they), ghosdeeri(she/they/it), traffic(he/any), zuka(he/they), broker(he/it), fluttershy(she/her), cruel king(he/him), steve (tankmen)(he/him), icedagger(he/they/snow)
+boombox, ghosdeeri, traffic, zuka, broker, dom, rocket, fluttershy,  steve(tankmen), cruel king, griefer, icedagger, tomoko kuroki, OWAKCX(sprunki)
 
 
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://github.com/user-attachments/assets/c017fc80-d506-495e-a097-3e75f37a64d6)
@@ -63,7 +63,7 @@ int → interact (talk to me, cuddle me, nuzzle me etc)・・・
 
 comf → comfort/comfort character (dont hate on any character i have this on!!!!, im watching you... ) ・・・
 
-kin/kinnie/sys → kin/kinning/system character (character i feel connected to, that character is me in personality, i may act like the character i have this on)・・・
+kin/kinnie → kin/kinning character (character i feel connected to, that character is me in personality)・・・
 
 afk → away from keyboard, so i cant see what happens, even whispers ・・・
 
