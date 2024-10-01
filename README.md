@@ -28,6 +28,8 @@ I sometimes make sexual/cruel/somewhat offensive jokes, im hypersexual and may m
 
 
 i mostly cosplay regretevator, tankmen, vs dave and bambi and phighting characters sometimes my own ocs. i yawn, sneeze, nom, eat, use items and use other actions by myself
+
+
 i accept almost all friend requests, im desperate for friends right now... hehehe
 
 
