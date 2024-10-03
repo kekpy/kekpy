@@ -4,6 +4,9 @@
 i use this page for pony town, so if you want to talk to me or just want to know more about me, go to my carrd and to one of my links, and interact with me on another site/app
 
 
+my carrd → https://rip-myself-brokers-biggest-fan.carrd.co/
+
+
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://github.com/user-attachments/assets/c017fc80-d506-495e-a097-3e75f37a64d6)
 
 
