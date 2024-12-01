@@ -6,7 +6,7 @@ my rentry is more orginised→ https://rentry.co/kekpyy
 [![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://64.media.tumblr.com/81b53d5b1d68f6117287c948c4d59231/a426a66921531da2-eb/s400x600/f05536dc446cfbe018b4af961e124820aefc07bc.jpg)
 
 
-my ability to reset my afk kick timer has been taken away, so i may disconnect mid-conversation, but i always join back... (if im online...)
+→!!!! my ability to reset my afk kick timer has been taken away, so i may disconnect mid-conversation, but i always join back... (if im online...) !!!!
 
 
 im hypersexual and may make sexual jokes without realizing, if you're uncomfortable with my jokes and the way i talk, please tell me, and i wont do jokes like that again...
