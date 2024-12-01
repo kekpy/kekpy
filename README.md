@@ -18,7 +18,7 @@ c+h is always okay, no need to ask, even when im with friends,
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://64.media.tumblr.com/94f593390d2f26c85a22d1c765aba2a1/a426a66921531da2-84/s540x810/4f40936ab1c6fcdf6c05637c70fbd1f0781eeb21.pnj)
 
 
-([any/all pronouns (including neo and xeno) except for it/he](https://pronouns.cc/@kekpy))
+[any/all pronouns (including neo and xeno) except for it/he](https://pronouns.cc/@kekpy)
 
 
 i accept almost every friend request, so feel free to send me a friend request without talking to me first...
@@ -51,13 +51,13 @@ i may send you a friend request if i like your character and/or after reading yo
 w2i → whisper to interact (not forceful but preferred)
 
 
-read byi → read before you interact, read this page before you interact with me
+read byi/rbyi → read before you interact, read this page before you interact with me
 
 
-tc → touch comfort (if i have this, im begging you to sit next to and/or nuzzle me)
+tc/touchcomf/cuddcomf → touch comfort/cuddle comfort (if i have this, im begging you to sit next to and/or nuzzle me,, idgaf which character you are tro❤)
 
 
-c+h → cuddles and hide (sitting next to me, boops, nuzzles etc)
+c+h → cuddles and hide (sitting next to me, boops, nuzzles etc and those "cat ears, bunny ears or genaral "putting stuff on your head" ponies are ok!")
 
 
 int → interact (talk to me, cuddle me, nuzzle me etc)
@@ -66,7 +66,7 @@ int → interact (talk to me, cuddle me, nuzzle me etc)
 comf → comfort/comfort character
 
 
-kin/kinnie → ([kinning character](https://www.urbandictionary.com/define.php?term=kin))
+kin/kinnie → [kinning character](https://www.urbandictionary.com/define.php?term=kin)
 
 
 afk → away from keyboard, so i cant see what happens, even whispers
