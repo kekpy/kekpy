@@ -9,10 +9,13 @@ my rentry is more orginised→ https://rentry.co/kekpyy
 →!!!! my ability to reset my afk kick timer has been taken away, so i may disconnect mid-conversation, but i always join back... (if im online...) !!!!
 
 
-im hypersexual and may make sexual jokes without realizing, if you're uncomfortable with my jokes and the way i talk, please tell me, and i wont do jokes like that again...
+→!!!! english isnt my first language, im hypersexual and may make sexual jokes without realizing, if you're uncomfortable with my jokes and the way i talk, please tell me, and i wont do jokes like that again...
 
 
-c+h is always okay, no need to ask, even when im with friends,
+c+h and interactions is always okay, no need to ask, even when im with friends, just come and sit next to me!!
+
+
+int is always open! unless i have afk, or the busy/away status in my name..
 
 
 ![362549790-d1645dc4-b2ba-4eb2-b98e-4ef1342516f1](https://64.media.tumblr.com/94f593390d2f26c85a22d1c765aba2a1/a426a66921531da2-84/s540x810/4f40936ab1c6fcdf6c05637c70fbd1f0781eeb21.pnj)
