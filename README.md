@@ -3,10 +3,13 @@
 
 my rentry is more orginised→ https://rentry.co/kekpyy
 
-![made by vsnzxx on pinterest](https://files.catbox.moe/tidkve.png)
+![made by vsnzxx on pinterest](https://64.media.tumblr.com/5e8e2cf1ef8964235d346da780fd94ff/d7dc8f36eeab789d-c0/s2048x3072/f8b9952d6ba67ab541a6d01eaae8c1713b2efcf9.pnj)
 
 
 →!!!! english isnt my first language, im hypersexual and may make sexual jokes without realizing, if you're uncomfortable with my jokes and the way i talk, please tell me, and i wont do jokes like that again...
+
+
+![frame not mine + art belongs to @EarlDarii on twt](https://64.media.tumblr.com/6cb69be4de9b3e85479d1ecf48231bd5/9234818fc5a89b83-43/s1280x1920/fe5d38d4c9a9c2a748c4e1936bd25649924227d0.pnj)
 
 
 c+h and interactions is always okay, no need to ask, even when im with friends, just come and sit next to me!!
@@ -15,7 +18,7 @@ c+h and interactions is always okay, no need to ask, even when im with friends, 
 int is always open! unless i have afk, or the busy/away status in my name..
 
 
-
+![x](https://64.media.tumblr.com/a8ada9fa705048b4fd68ca3a0ab27437/6c564b20c6394e90-82/s540x810/10020001b8e25a994a37aeba53ed984196f4be8c.gifv)
 
 
 [any/all pronouns (including neo and xeno) except for it/he](https://pronouns.cc/@kekpy)
