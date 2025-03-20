@@ -1,4 +1,4 @@
-## about me !
+##  " As the master of the Ivory Pagoda ... "
 
 
 my rentry is more orginised→ https://rentry.co/voxxyval
