@@ -2,7 +2,9 @@
 
 
 my rentry is more orginised→ https://rentry.co/voxxyval
-burningmilk is one of my biggest comfort ships please please please talkt ot be abt it sit next to me if your either of the characters ouuggf i beg PLEASE SIT NEXT TO ME
+
+
+burningmilk is one of my biggest comfort ships please please please talk to me abt it sit next to me if your either of the characters ouuggf i beg PLEASE SIT NEXT TO ME
 
 
 ![made by vsnzxx on pinterest](https://64.media.tumblr.com/5e8e2cf1ef8964235d346da780fd94ff/d7dc8f36eeab789d-c0/s2048x3072/f8b9952d6ba67ab541a6d01eaae8c1713b2efcf9.pnj)
