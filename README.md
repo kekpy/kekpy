@@ -4,6 +4,9 @@
 my rentry is more orginised→ https://rentry.co/voxxyval
 
 
+SPAM FOLLOWERS DNI
+
+
 burningmilk and purecacao are my biggest comfort ships please please please talk to me abt it sit next to me if your either of the characters ouuggf i beg PLEASE SIT NEXT TO ME OR TALK TO ME PLEASE I DONT BITE PLEASE INTERACT WITH ME IM ON MY KNEES
 
 
