@@ -4,7 +4,7 @@
 my rentry is more orginised→ https://rentry.co/voxxyval
 
 
-SPAM FOLLOWERS DNI
+c+h is always ok!! even when im with friends, no need to ask!!
 
 
 
